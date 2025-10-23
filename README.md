@@ -88,3 +88,6 @@ If this bot has helped you, consider buying me a coffee!
 
 SOL Address:
 8MeRfGewLeU419PDPW9HGzM9Aqf79yh7uCXZFLbjAg5a
+
+Coming Soon
+wait for the news
